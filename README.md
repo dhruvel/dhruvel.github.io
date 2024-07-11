@@ -1,4 +1,4 @@
-# [Dhruv Sagar]
+# Dhruv Sagar
 
 ## About Me
 
